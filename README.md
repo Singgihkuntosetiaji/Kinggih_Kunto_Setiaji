@@ -1,1 +1,0 @@
-# Kinggih_Kunto_Setiaji
